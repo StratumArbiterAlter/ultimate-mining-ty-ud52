@@ -1,4 +1,4 @@
-
+Experience ultimate mining tycoon like never before with ultimate mining tycoon secret Script, the #1 Script. Includes auto-collect and auto-sell for
 
 
 
